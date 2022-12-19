@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello and welcome to my GitHub profile 👋
 
 - 📫 How to reach me: https://ismaelbathily.tech
 
